@@ -59,5 +59,7 @@ The novel concludes with the resolution of the immediate crisis and the team's d
 
  game2
 
- ## 
+ ## ref
+ - https://doomwiki.org/wiki/Trouble_on_Titan
+ - 
 
