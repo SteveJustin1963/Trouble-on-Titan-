@@ -1,4 +1,7 @@
 # Trouble-on-Titan- SCIFI Book by Alan E. Nourse
+![image](https://github.com/user-attachments/assets/587be04f-3d7f-4c9e-a993-309bc3eeccb6)
+
+
 ![image](https://github.com/SteveJustin1963/Trouble-on-Titan-/assets/58069246/b3d5eb02-ced4-4a88-84d4-64ad764b99f2)
 ![image](https://github.com/SteveJustin1963/Trouble-on-Titan-/assets/58069246/59bae81d-8827-401e-b16a-ab5a09c5d523)
 
